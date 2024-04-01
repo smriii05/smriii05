@@ -1,4 +1,4 @@
-![MasterHead](https://gifdb.com/images/high/spirited-away-cheer-6pafjs4n4wa3odke.gif)
+
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/smriti-shakya-906833237) 
 
